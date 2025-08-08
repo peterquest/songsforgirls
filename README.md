@@ -22,7 +22,7 @@ Ok yeah it's a Christmas song. But if you're going to have your kids latch on to
 
 ### Too Many Birds - Bill Callahan
 
-`birds + bird + bird + birds + bird + bird + bird = too many` is funny
+`birds + bird + bird + birds + bird + bird + bird + bird + bird + birds + bird = too many` is funny
 
 ### [goin' on a plane today](https://www.youtube.com/watch?v=asfLDrLrEvk) - Kurt Vile
 Cheers to the original. The reason this lists exists is because I turned this on when Goldie was in her carseat crying her lungs out and she immediately ceased her sobbing and just sat there listening pensively. It consistently worked to calm her or otherwise put her in a happy mood. What a godsend for a new parent! The simplicity of the opening piano seems to be the perfect lure for the mind of a child.
