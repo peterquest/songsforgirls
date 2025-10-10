@@ -4,13 +4,27 @@ A running list of songs my girls like. This could probably also be considered a 
 
 ### A.M. 180 - Grandaddy
 
+"the crazy song"
+
 ### Painter in your Pocket - Destroyer
 
+### Sunflower - Vampire Weekend
+
+One of Margot's go-to's. dooba dooba doot 
+
+### Dreams - The Cranberries
+
 ### Fish and Whistle - John Prine
+
+For some reason every time the second verse happens, they both scream "MONKEY WRENCH". I have video of this somewhere.
 
 ### Wait until the mornin' comes - Neil Young
 
 ### Only love can break your heart - Neil Young
+
+### Our House - Madness
+
+"Our house it has a crown" was a favorite lyric.
 
 ### Ghost Town - The Specials
 
