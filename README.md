@@ -1,6 +1,7 @@
 # songsforgirls
 A running list of songs my girls like. This could probably also be considered a list of "Good songs that are also functional kid's songs."
 
+## 2025
 
 ### A.M. 180 - Grandaddy
 
@@ -12,13 +13,21 @@ A running list of songs my girls like. This could probably also be considered a 
 
 One of Margot's go-to's. dooba dooba doot 
 
+### Do you hear the people sing? - Les Mis
+
+Margot immediately latched on to this. Affectionately titled "Angry Men." Surprised a teacher by singing this at school shortly after having turned 3.
+
 ### Dreams - The Cranberries
+
+"Bille's song"
 
 ### Fish and Whistle - John Prine
 
 For some reason every time the second verse happens, they both scream "MONKEY WRENCH". I have video of this somewhere.
 
 ### Wait until the mornin' comes - Neil Young
+
+"The short one"
 
 ### Only love can break your heart - Neil Young
 
